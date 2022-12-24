@@ -1,3 +1,2 @@
 - 👋 Hi, I’m @prabuelangovan
-- 👀 I’m interested in Datascience and Machine Learning
-- 📫 Reach me @ +91 8122913253 Email: iamprabuelangovan@gmail.com
+- 📫 Reach me @ +91 9003313253 Email: iamprabuelangovan@gmail.com
